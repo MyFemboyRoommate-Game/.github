@@ -1,4 +1,4 @@
-![WX20241112-110603@2x](https://github.com/user-attachments/assets/567bc9b4-2700-4792-a2c1-0b00ec6b9fac)# My Femboy Roommate APK for Android & PC Game Free Download & Play Online
+# My Femboy Roommate APK for Android & PC Game Free Download & Play Online
 
 **My Femboy Roommate** is a choice-driven visual novel developed by Nuteku, blending heartfelt storytelling, humor, and modern themes. This interactive game focuses on building relationships and uncovering multiple endings based on player choices. Designed for Android, PC, and other platforms, it has gained popularity for its engaging narrative and inclusivity.
 
